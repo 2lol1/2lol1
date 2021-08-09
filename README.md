@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @2lol1
-- 👀 I’m interested in being a business man .
+- 👀 I’m interested in working  .
 - 🌱 I’m currently learning computer science and space science .
-- 💞️ I’m looking to collaborate on nothing .
-- 📫 How to reach me idk . 
+- 💞️ I’m looking to collaborate on harvard .
+- 📫 How to reach me my email (yalla2ngz@gmail.com) . 
 
 <!---
 2lol1/2lol1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
